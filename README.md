@@ -13,4 +13,4 @@ Final-year Computer Science & Engineering undergraduate (**8.31 CGPA**) focused 
 
 #### 📫 Connect
 - **Email:** kundhavai2727@gmail.com
-- **LinkedIn:** in/kundhavai-m-341b9228a
+- **LinkedIn:** www.linkedin.com/in/kundhavai-m-341b9228a
